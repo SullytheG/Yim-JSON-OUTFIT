@@ -5,4 +5,5 @@ Load up into gta online with menu go to self->Outfit Editor-> then click on pink
 
 if u have any questions text me on discord: Finn1249
 
-how to get yim menu the right way: https://www.youtube.com/watch?v=HBY9EtGaGvY
+how to get yim menu the right way: https://www.youtube.com/watch?v=HBY9EtGaGvY 
+MAKE SURE to watch the whole video, to make sure of no errors. (not my video)
