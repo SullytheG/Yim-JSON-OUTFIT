@@ -4,3 +4,5 @@ outfit for yim menu .json file a clean pink outfit I made
 3 done and enjoy the outfit i might make different color outfits soon so stay tuned
 
 if u have any questions text me on discord: Finn1249
+
+how to get yim menu the right way: https://www.youtube.com/watch?v=HBY9EtGaGvY
